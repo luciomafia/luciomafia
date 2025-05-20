@@ -11,7 +11,7 @@ rum/mayhem + she/they
 19 ♯ eng ♯ safe server docks, 18+ ow area
 </p>
 <p align="center">
-most likely to be seen in my frogger skin or my plain lucio skin! active in stgs :]
+most likely to be seen in my frogger skin or my plain lucio skin! :]
 </p>
 <p align="center">
 <img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367756745094598739/Untitled1793.png?ex=6815be3b&is=68146cbb&hm=4b57c8e79592ef454a9d6cdff8acc29404c44e9516a97fde10d7987fcd79ab5c&" width="410" height="200">
