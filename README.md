@@ -1,8 +1,8 @@
 <p align="center">
-<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367739273046003753/Untitled1790.png?ex=6817a836&is=681656b6&hm=7ac0a9a0ba4e48ade99c4839635d83841fdd519315b6ff362526ee93738b773e&" width="500" height="500">
+<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367739273046003753/Untitled1790.png?ex=68599336&is=685841b6&hm=724421156b2e562808b53a12e846640bcae5e34b4e69220095905dc0f65c9cad&" width="500" height="500">
 </p>
 <p align="center">
-<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367749887835373638/Untitled1792.png?ex=6815b7d8&is=68146658&hm=6d07ee85bc6e978b25963754d1a86cbf8838adf71a44f194d12d10b836625614&" width="500" height="50">
+<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367749887835373638/Untitled1792.png?ex=68599d18&is=68584b98&hm=90bcf9da615256694c3d6b3d77e6172f16a90fbc1a89704b124343b585049355&" width="500" height="50">
 </p>
 <p align="center">
 rum/mayhem + she/they
@@ -14,8 +14,8 @@ rum/mayhem + she/they
 most likely to be seen in my frogger skin or my plain lucio skin! :]
 </p>
 <p align="center">
-<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367756745094598739/Untitled1793.png?ex=6815be3b&is=68146cbb&hm=4b57c8e79592ef454a9d6cdff8acc29404c44e9516a97fde10d7987fcd79ab5c&" width="410" height="200">
+<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367756745094598739/Untitled1793.png?ex=6859a37b&is=685851fb&hm=bd31da872d7c4683f18c10147e5e69bb894cd58070d6406dedd90615a96e6b1c&" width="410" height="200">
 </p>
 <p align="center">
-<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367757611180621834/Untitled1792.png?ex=6815bf0a&is=68146d8a&hm=2b7343b8a465de619620361f43324c4e00e31b32d22563a64b47f5290c881cd8&" width="500" height="50">
+<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367757611180621834/Untitled1792.png?ex=6859a44a&is=685852ca&hm=469838422625c564f86424d5c513810979e912c3950428468cd9131cad9e0374&" width="500" height="50">
 </p>
