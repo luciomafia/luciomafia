@@ -1,8 +1,8 @@
 <p align="center">
-<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367739273046003753/Untitled1790.png?ex=68599336&is=685841b6&hm=724421156b2e562808b53a12e846640bcae5e34b4e69220095905dc0f65c9cad&" width="500" height="500">
+<img src= "https://64.media.tumblr.com/4a5d523feb4307189ca5ef39081771de/f4cf1f37efe8696c-3c/s1280x1920/6545c7644d6d7ea0ec4ff9e613c9ac27170613b3.pnj" width="500" height="500">
 </p>
 <p align="center">
-<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367749887835373638/Untitled1792.png?ex=68599d18&is=68584b98&hm=90bcf9da615256694c3d6b3d77e6172f16a90fbc1a89704b124343b585049355&" width="500" height="50">
+<img src= "https://64.media.tumblr.com/44f1811f42b013bf9d4bc8462322ba7f/f4cf1f37efe8696c-6b/s2048x3072/c9b3bf90644f78f6a71f56d04d0e8121e40e6cdd.pnj" width="500" height="50">
 </p>
 <p align="center">
 rum/mayhem + she/they
@@ -14,8 +14,8 @@ rum/mayhem + she/they
 most likely to be seen in my frogger skin or my plain lucio skin! :]
 </p>
 <p align="center">
-<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367756745094598739/Untitled1793.png?ex=6859a37b&is=685851fb&hm=bd31da872d7c4683f18c10147e5e69bb894cd58070d6406dedd90615a96e6b1c&" width="410" height="200">
+<img src= "https://64.media.tumblr.com/32cbd4b12cb7cdc9eb84abe5f2c2e38e/f4cf1f37efe8696c-e9/s1280x1920/d5e5599a94c1fe4c05300081b7b86a319f18ecfa.pnj" width="410" height="200">
 </p>
 <p align="center">
-<img src= "https://cdn.discordapp.com/attachments/524054370808102939/1367757611180621834/Untitled1792.png?ex=6859a44a&is=685852ca&hm=469838422625c564f86424d5c513810979e912c3950428468cd9131cad9e0374&" width="500" height="50">
+<img src= "https://64.media.tumblr.com/e49bda51a4a7c78f796c381e7e52015d/f4cf1f37efe8696c-dd/s2048x3072/d94ba6a14baed09d67ac6eb368871c9d8ee78de4.pnj" width="500" height="50">
 </p>
